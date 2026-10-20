@@ -2,12 +2,6 @@
 
 ![Welcome](https://github.com/drunkandmoe/Bio/blob/main/Untitled90_20261019192353.webp?raw=true)
 
-# ♡ BENZIN ♡
-
-*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
-
-**welcome to my little corner of the internet!**
-
 ୨୧ ─────────────── ୨୧
 
 </div>
