@@ -1,6 +1,6 @@
  <div align="center">
 
-<img src="https://media.tenor.com/2roX3uxz_68AAAAC/cinnamoroll-sanrio.gif" width="130" alt="Cute floating Cinnamoroll gif">
+![Welcome](URL_DE_LA_IMAGEN)
 
 # ♡ BENZIN ♡
 
