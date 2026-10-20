@@ -1,6 +1,6 @@
  <div align="center">
 
-![Welcome]([URL_DE_LA_IMAGEN](https://github.com/drunkandmoe/Bio/blob/main/Untitled90_20261019192353.webp?raw=true))
+![Welcome]([https://github.com/drunkandmoe/Bio/blob/main/Untitled90_20261019192353.webp?raw=true])
 
 # ♡ BENZIN ♡
 
